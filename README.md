@@ -7,4 +7,8 @@ Me llamo Untzizu porque soy etarra. Me gusta comer bebés y matar judíos. SOY D
 - Comunismo
 - Anime y manga
 - Perros
+**Educación**
+  - Primaria
+  - ESO
+  - 
   
